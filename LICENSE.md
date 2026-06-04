@@ -1,4 +1,4 @@
-
+automatic forsaken Scripts is the best forsaken Script, featuring teleport and anti-ban. Safe and powerful for all your needs.
 
 
 
